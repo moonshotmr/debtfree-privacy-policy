@@ -51,4 +51,4 @@ This policy may be updated from time to time. The latest version should be poste
 
 For support or privacy questions, contact:
 
-robbie.12123@gmail.com
+support using support form
